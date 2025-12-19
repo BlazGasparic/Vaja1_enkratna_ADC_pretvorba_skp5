@@ -1,0 +1,1 @@
+# Vaja1_enkratna_ADC_pretvorba_skp5
